@@ -1,2 +1,2 @@
 # shreyas-shrestha.github.io
-personal website 
+all about me!
